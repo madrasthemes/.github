@@ -1,3 +1,5 @@
+[![image](https://github.com/madrasthemes/.github/assets/1275014/378367f3-0a87-4fc8-b24e-4e8df5139d2b)](https://madrasthemes.com/)
+
 ## Premium WordPress Themes for every niche
 
 We have the finest Premium WordPress Themes and a top notch customer support.
